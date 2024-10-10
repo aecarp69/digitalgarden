@@ -7,5 +7,7 @@
 
 
 Shadow's Gambit Digital Garden 
-Woot Woot!
+Woot Woot! 
+Where is my other Page?
+
 
