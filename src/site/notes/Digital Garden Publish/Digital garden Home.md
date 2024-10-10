@@ -10,4 +10,5 @@ Shadow's Gambit Digital Garden
 Woot Woot! 
 Where is my other Page?
 
+[[Digital Garden Publish/Schadow Test 2\|Schadow Test 2]]
 
